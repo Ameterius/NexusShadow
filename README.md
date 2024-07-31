@@ -29,3 +29,5 @@ Download 7z archive:
   ```
 
 2. Well done
+
+[Support Me plz :0](https://www.donationalerts.com/r/ametero)
